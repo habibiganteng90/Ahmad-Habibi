@@ -15,4 +15,5 @@ Content Creator @Amadefolio
 - After Effect
 
 ### Hire Me 
+![image](/assets/img/profil ig.jpg)
 On Instagram: @ahmaddhabibiii
